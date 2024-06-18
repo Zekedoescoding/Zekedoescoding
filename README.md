@@ -1,5 +1,5 @@
 - 👋 Hi, I’m:                       @Zekedoescoding
-- 👀 I’m interested in:             Coding, Games, Lucid Dreaming, Music, and Computers. (im a nerd beisically)
+- 👀 I’m interested in:             Coding, Games, Lucid Dreaming, Music, and Computers. (im a nerd basically)
 - 🌱 I’m currently learning:        Coding.
 - 💞️ I’m looking to collaborate on: Nothing.
 - 📫 How to reach me:               Don't.
